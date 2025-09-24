@@ -1,4 +1,5 @@
 ## About Me👋
+<img width="1584" height="828" alt="image" src="https://github.com/user-attachments/assets/a39c90dc-3038-427b-9cd6-fa560dd7373d" />
 
 👋 Hi everyone, I’m Natasha! Welcome to my profile.
 
