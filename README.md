@@ -22,4 +22,5 @@ Coming from the creative industry, I’ve learned the power of communication and
 
 ## 👋🏻 Connect with Me
 [LinkedIn](www.linkedin.com/in/natashalimkarkhee)
+
 natasha.limkk@gmail.com
