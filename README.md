@@ -21,6 +21,6 @@ Coming from the creative industry, I’ve learned the power of communication and
 💡 I’m always open to connecting with fellow data enthusiasts, sharing knowledge, and exploring opportunities to learn and grow in this field.
 
 ## 👋🏻 Connect with Me
-[LinkedIn](www.linkedin.com/in/natashalimkarkhee)
+[LinkedIn](https://www.linkedin.com/in/natashalimkarkhee)
 
 natasha.limkk@gmail.com
