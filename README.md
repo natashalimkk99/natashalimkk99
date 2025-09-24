@@ -1,5 +1,6 @@
 ## About Me👋
-<img width="1584" height="828" alt="image" src="https://github.com/user-attachments/assets/a39c90dc-3038-427b-9cd6-fa560dd7373d" />
+![Banner Profile](https://github.com/natashalimkk99/profile-banner/blob/main/1757781606651.jpg?raw=true)
+
 
 👋 Hi everyone, I’m Natasha! Welcome to my profile.
 
